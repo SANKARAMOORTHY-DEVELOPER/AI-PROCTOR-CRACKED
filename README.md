@@ -45,7 +45,7 @@ so be good with your expression
 all  check point of code tantra has been cracked I think 
 
 if you want to crack code tantra there are two ways 
-1 . Is to have a friend along with you who is capable of guiding you 
+1 . Is to have a friend along with you who is capable of guiding yo
 2. to have two device 
 (combination of lap + phone 
 phone +phone
@@ -77,4 +77,5 @@ THE ODD SEM 2020-2021 FIRST YEAR WAS CRACKED SUCESSFULLY  SO KINDLY REFER THE SC
 ****
 
 
-![WhatsApp Image 2021-01-31 at 2 35 26 PM](https://user-images.githubusercontent.com/70067609/116119684-52f90700-a6dc-11eb-9d61-3e1e71c4eae5.jpeg)
+
+![WhatsApp Image 2021-01-31 at 2 35 26 PM](https://user-images.githubusercontent.com/70067609/116123756-07952780-a6e1-11eb-9ebc-ba4ffdf16017.jpeg)
